@@ -1,0 +1,2 @@
+# Quote
+Advice daily
